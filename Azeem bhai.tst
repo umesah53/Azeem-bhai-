@@ -1,1 +1,1 @@
-if you think your bad i am your dad
+picture is a magazine 
